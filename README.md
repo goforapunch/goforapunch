@@ -1,4 +1,4 @@
-**they/hy**/he/she
+**they/she**/he
 
 most of you take this game way too serious have a cig
 
