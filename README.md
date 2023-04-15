@@ -1,3 +1,3 @@
-**they/she**/he
+**they/he**/she
 
 keep yourself safe
