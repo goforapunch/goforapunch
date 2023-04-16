@@ -4,6 +4,6 @@ only dni rly is harumi likers(esp apologists ur all weird as fuck) & if ur rly i
 
 pls ask me to tell you about morro lore pls pls pls pls pls pls pls pls
 
-![image](https://user-images.githubusercontent.com/111026664/232308012-d395006a-9cf3-41fb-a328-004ddc144266.png)
+![image](https://user-images.githubusercontent.com/111026664/232308079-406d4ff2-14da-489f-9e19-7ecc2a866054.png)
 
 art by 3ksDee on twt
