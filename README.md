@@ -1,4 +1,4 @@
-18 - proud scaramouche lover and morro enthusiast
+proud scaramouche lover and morro enthusiast
 
 only dni rly is if ur rly into homestuck/genshin fandom & harumi likers(esp apologists ur all weird as fuck)
 
