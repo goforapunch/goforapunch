@@ -1,9 +1,9 @@
 proud scaramouche lover and morro enthusiast
 
-only dni is freak harumi likers(esp apologists ur all weird as fuck)
+only dni is u freak harumi likers(esp apologists ur all weird as fuck) & lloyd ships
 
 pls ask me to tell you about morro lore pls pls pls pls pls pls pls pls
 
-![image](https://user-images.githubusercontent.com/111026664/232308079-406d4ff2-14da-489f-9e19-7ecc2a866054.png)
+![image](https://user-images.githubusercontent.com/111026664/232706231-52e3e491-fd96-4dfe-8693-a49879a309b3.png)
 
 art by 3ksDee on twt
