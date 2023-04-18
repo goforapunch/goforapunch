@@ -6,4 +6,4 @@ pls ask me to tell you about morro lore pls pls pls pls pls pls pls pls
 
 ![image](https://user-images.githubusercontent.com/111026664/232706752-666628c3-c8fc-4e28-b67b-6f9448efd31e.png)
 
-art by 3ksDee on twt
+i love kai ninjago . art by 3ksDee on twt
