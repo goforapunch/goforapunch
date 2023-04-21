@@ -1,6 +1,6 @@
 proud scaramouche lover and morro enthusiast
 
-if im sitting alone feel free to strike up a convo !!
+if im sitting alone feel free to strike up a convo !! if i dont reply im afk or tabbed, check the activity status
 
 only dni is u freak harumi likers(esp apologists ur all gross) otherwise ill just hide you if youre weird
 
