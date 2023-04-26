@@ -1,4 +1,4 @@
-scaramouche lover + #1 morro enthusiast
+#1 morro enthusiast + scaramouche lover (gi fandom dni)
 
 only dni is u freak harumi likers(esp apologists ur all gross) otherwise ill just hide you if youre weird
 
